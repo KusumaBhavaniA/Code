@@ -1,6 +1,4 @@
 
-xjvxm
-dugxm
 djfxm
 zjvx
 f.  I cc BB pp obci etched sum
